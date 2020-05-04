@@ -1,2 +1,2 @@
 # Labo-de-progra
-C'est de la merde
+j'aime les hommes 
